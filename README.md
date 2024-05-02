@@ -1,3 +1,11 @@
+![image](https://github.com/smilemittens/smilemittens/assets/138685973/f37febfe-f663-4a3a-96dd-172fc04b4c3b)
+
+
+
+
+
+
+
 hi im willy ^_^ i am a kpop fan and my fav group is newjeans but why would anyone care lmfao
 
 i don't have good grammar, and i type too fast
@@ -16,7 +24,6 @@ FOLLOW MY SPOTIFY PLEASE I'M ON MY KNEES
 
 https://open.spotify.com/user/315fswrk2soexgta2pfrslceg6xy?si=64b2fc7832b74438
 
-![image](https://github.com/smilemittens/smilemittens/assets/138685973/b76af8c6-f1a4-4544-87ef-5a462649724d)
 
-
+![image](https://github.com/smilemittens/smilemittens/assets/138685973/b064b752-fbf7-4bc5-8cc5-bff8b660e5cc)
 
