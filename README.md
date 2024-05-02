@@ -1,4 +1,4 @@
-hi im willy ^_^ i am a kpop stan and my fav group is newjeans but why would anyone care lmfao
+hi im willy ^_^ i am a kpop fan and my fav group is newjeans but why would anyone care lmfao
 
 i don't have good grammar, and i type too fast
 
