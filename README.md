@@ -1,5 +1,7 @@
 hi im willy ^_^ i am a kpop stan and my fav group is newjeans but why would anyone care lmfao
 
+i don't have good grammar, and i type too fast
+
 my humor is not good please bear with me😭🙏🏾
 
 if you try to get my attention/talk to me on ponytown and i don't answer it's because i'm offtab, i am **not** ignoring you, whisper so i see it later
