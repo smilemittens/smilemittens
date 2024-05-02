@@ -1,4 +1,5 @@
-![image](https://github.com/smilemittens/smilemittens/assets/138685973/2cf34831-2361-4e0b-9e94-420461279ce4)
+![image](https://github.com/smilemittens/smilemittens/assets/138685973/0d8de408-945a-485e-b659-ae8baef1ba71)
+
 
 
 
@@ -27,6 +28,4 @@ https://open.spotify.com/user/315fswrk2soexgta2pfrslceg6xy?si=64b2fc7832b74438
 sign my guestbook i check it daily
 
 https://willzqo.123guestbook.com
-
-![image](https://github.com/smilemittens/smilemittens/assets/138685973/542b58fd-d55e-4aba-a708-be6b6e3cc45b)
 
