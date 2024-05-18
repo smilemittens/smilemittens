@@ -7,7 +7,7 @@
 
 
 
-hi im willy ^_^ i am a kpop fan and my fav group is newjeans but why would anyone care lmfao
+hi im **willy** or **rody** ^_^
 
 i don't have good grammar, and i type too fast
 
@@ -15,7 +15,7 @@ my humor is not good please bear with me😭🙏🏾
 
 if you try to get my attention/talk to me on ponytown and i don't answer it's because i'm offtab, i am **not** ignoring you, whisper so i see it later, i also get anxious talking to new ppl so i'm almost always alone on ponytown💀 Also i hide freely but sometimes i do it by mistake sorry
 
-**music!** babymonster, dua lipa, __kiana__, laufey, melanie martinez, __newjeans__, omori, pinkpanthress etc
+**music!** cg5, dua lipa, __kiana__, laufey, maretu, __meghan trainor__, __melanie martinez__, mitski, __omori__, pinkpantheress, __random encounters__, syudou
 
 **characters!** __protag(elevator hitch)__, __coworker(elevator hitch__), rody(dead plate), __loid(spy x family)__, sunny(omori), hero(omori), __bachira(blue lock)__, bibi(i love amy), __yayoi(smile precure)__, __winnie(cold front)__
 
