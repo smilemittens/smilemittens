@@ -25,5 +25,4 @@ FOLLOW MY SPOTIFY PLEASE I'M ON MY KNEES
 
 https://open.spotify.com/user/315fswrk2soexgta2pfrslceg6xy?si=64b2fc7832b74438
 
-i'm very glad i'm in this check it out!!
-https://rentry.co/omegatown
+Submissive Omega in the omegatown project!🐺
