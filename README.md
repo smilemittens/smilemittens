@@ -27,5 +27,6 @@ https://open.spotify.com/user/315fswrk2soexgta2pfrslceg6xy?si=64b2fc7832b74438
 
 Submissive Omega in the omegatown project!🐺
 
-![image](https://github.com/smilemittens/smilemittens/assets/138685973/6c924dfb-f689-49d2-ba91-8042aa2e4948)
+![image](https://github.com/smilemittens/smilemittens/assets/138685973/03297606-ab9e-47e5-a056-77d198f6d9d9)
+
 
