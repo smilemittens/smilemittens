@@ -17,7 +17,7 @@ if you try to get my attention/talk to me on ponytown and i don't answer it's be
 
 **music!** aespa, babymonster, cg5, dua lipa, ive, __kiana__, laufey, maretu, michael jackson, __meghan trainor__, __melanie martinez__, mitski, __omori__, pinkpantheress, __random encounters__, __syudou__
 
-**characters!** __protag(elevator hitch)__, __coworker(elevator hitch__), rody(dead plate), __loid(spy x family)__, basil(omori), __hero(omori)__, __bachira(blue lock)__, bibi(i love amy), __yayoi(smile precure)__, __winnie(cold front)__, __forcas(eloquent countenance)__, __kunikida(bsd)__, **dazai(bsd)**, **kenji(bsd)**, __atsushi(bsd)__, nikolai(bsd), __ranpo(bsd)__, chuuya(bsd)
+**characters!** __protag(elevator hitch)__, __coworker(elevator hitch__), rody(dead plate), __loid(spy x family)__, basil(omori), __hero(omori)__, __bachira(blue lock)__, bibi(i love amy), __yayoi(smile precure)__, __winnie(cold front)__, __forcas(eloquent countenance)__, __kunikida(bsd)__, **dazai(bsd)**, **kenji(bsd)**, __atsushi(bsd)__, nikolai(bsd), __ranpo(bsd)__, chuuya(bsd), akutagawa(bsd)
 
 **don't come up to me if you're supporting israel sorry not sorry**
 
