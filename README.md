@@ -4,7 +4,7 @@
 
 
         
-                   ✦ ۶⠀Willy⠀**or**⠀Yuna⠀◡◡⠀sheノ**her**ノherself ◞ ꒱
+                  ✦ ۶⠀Willy⠀**or**⠀Yuna⠀◡◡⠀sheノ**her**ノherself ◞ ꒱
                       
             **BYI**: Bad grammar ‧ Weird humour ‧ Dry texter if we have just met ‧ Offtab alot ‧ Sarcastic af
 
