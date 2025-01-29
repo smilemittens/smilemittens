@@ -5,7 +5,7 @@
 </p>
 <p align="center"
   
-[carrd !!](https://willyzqo.carrd.co)  　　[tiktok !!](https://www.tiktok.com/@willysqo?is_from_webapp=1&sender_device=pc)  　　[spotify !!](https://open.spotify.com/user/315fswrk2soexgta2pfrslceg6xy?si=16a581f1592b448d)
+my socials(ask for others):  　　[carrd !!](https://willyzqo.carrd.co)  　　[tiktok !!](https://www.tiktok.com/@willysqo?is_from_webapp=1&sender_device=pc)  　　[spotify !!](https://open.spotify.com/user/315fswrk2soexgta2pfrslceg6xy?si=16a581f1592b448d)
 
 </p>
 <br>
