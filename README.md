@@ -1,7 +1,7 @@
 <p align="center">
 ✩
 <p align="center">
-<img src=https://i.pinimg.com/736x/7a/0c/71/7a0c71d6b400aa0182da06054d2e4366.jpg
+<img src=https://i.pinimg.com/736x/21/5c/22/215c22230be82fa409d98d0e78412592.jpg
 </p>
 <p align="center"
   
@@ -19,5 +19,5 @@ if you ever int with me just know that i
   <br>
   to not interact with me. Also please don't try to 
   <br>
-  rp with me i suck at that!⭐
+  rp with me i suck at that!🍣
 </p>
