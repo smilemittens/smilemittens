@@ -1,5 +1,5 @@
 <p align="center">
-✩
+🍒
 <p align="center">
 <img src=https://github.com/user-attachments/assets/2ac3305b-1ffd-4b64-88ad-50152343e31f
 </p>
