@@ -19,5 +19,5 @@ if you ever int with me just know that i
   <br>
   to not interact with me. Also please don't try to 
   <br>
-  rp with me i suck at that!🍣
+  rp with me i suck at that!🎐
 </p>
