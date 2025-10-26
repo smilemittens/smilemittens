@@ -1,5 +1,5 @@
 <p align="center">
-🍒
+🏓
 <p align="center">
 <img src=https://github.com/user-attachments/assets/2ac3305b-1ffd-4b64-88ad-50152343e31f
 </p>
@@ -13,11 +13,11 @@ my socials(ask for others):  　　[carrd !!](https://willyzqo.carrd.co)  　　
 <p align="center">
 if you ever int with me just know that i 
   <br>
-  will mostly talk about my interests cause i can't
+  will mostly talk about my hypmic cause i can't
   <br>
- stop talking about them... If you don't like it i suggest 
+ stop talking about it!... If you don't like it i suggest 
   <br>
   to not interact with me. Also please don't try to 
   <br>
-  rp with me i suck at that!🎐
+  rp with me i suck at that!
 </p>
