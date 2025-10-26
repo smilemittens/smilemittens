@@ -1,7 +1,8 @@
 <p align="center">
 🏓
 <p align="center">
-<img src=https://github.com/user-attachments/assets/2ac3305b-1ffd-4b64-88ad-50152343e31f
+<img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/955ebeaa-ab8c-46d5-b5a1-87c773e8fd51" />
+
 </p>
 <p align="center"
   
