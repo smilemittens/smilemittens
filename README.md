@@ -13,9 +13,9 @@ my socials(ask for others):  　　[carrd !!](https://willyzqo.carrd.co)  　　
 <p align="center">
 if you ever int with me just know that i 
   <br>
-  will mostly talk about my hypmic cause i can't
+  will mostly talk about my hypmic cause it is
   <br>
- stop talking about it!... If you don't like it i suggest 
+ my current fixation! If you don't like it i suggest 
   <br>
   to not interact with me. Also please don't try to 
   <br>
