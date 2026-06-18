@@ -19,3 +19,5 @@ ${\color{#826671}\textsf{to not interact with me. Also please don't try to}}$
   <br>
 ${\color{#69545D}\textsf{rp with me i suck at that!}}$
 </p>
+<p align="center">
+<img width="35" height="70" alt="image"  src="https://github.com/user-attachments/assets/5e61d8f4-b2f6-4096-95be-22ed0368218e" />
