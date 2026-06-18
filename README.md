@@ -6,17 +6,16 @@
 </p>
 <p align="center"
   
-my socials(ask for others):  　　[carrd !!](https://willysqo.carrd.co)  　　[tiktok !!](https://www.tiktok.com/@willysqo?is_from_webapp=1&sender_device=pc)  　　[spotify !!](https://open.spotify.com/user/315fswrk2soexgta2pfrslceg6xy?si=16a581f1592b448d)
-
+${\color{#C7C7F9}\textsf{my carrd}}$: 　[carrd !!](https://willysqo.carrd.co)
 </p>
 <p align="center">
-if you ever int with me just know that i 
+${\color{#C36EDC}\textsf{if you ever int with me just know that i}}$ 
   <br>
-  will mostly talk about my hypmic cause it is
+${\color{#8D33C7}\textsf{will mostly talk about my hypmic cause it is}}$
   <br>
- my current fixation! If you don't like it i suggest 
+${\color{#C7C7F9}\textsf{my current fixation! If you don't like it i suggest}}$ 
   <br>
-  to not interact with me. Also please don't try to 
+${\color{#826671}\textsf{to not interact with me. Also please don't try to}}$ 
   <br>
-  rp with me i suck at that!
+${\color{#69545D}\textsf{rp with me i suck at that!}}$
 </p>
